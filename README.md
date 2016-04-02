@@ -9,4 +9,6 @@ But when I worked at Sichuan Province Airport Group Company (Chengdu Internation
 
 I'm greatly inspired by Kai Fu-Lee when I read his autobiography *Making a world of difference*, I know what I want now. I love the rapid development of the Internet, and I hope that with the rapid development of mobile Internet in this golden age and I can growing together.
 
+Pls contact me at: jack.zr.liu#qq.com
+
 > I went to the woods because I wished to live deliberately, to front only the essential facts of life, and see if I could not learn what it had to teach, and not, when I came to die, discover that I had not lived.
